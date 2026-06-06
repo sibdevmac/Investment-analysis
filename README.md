@@ -1,4 +1,4 @@
-# Global Geopolitical Stability and Investment Attractiveness Analysis (2020–2025)
+# Investment Analysis (2020–2025)
 
 ## Introduction
 
